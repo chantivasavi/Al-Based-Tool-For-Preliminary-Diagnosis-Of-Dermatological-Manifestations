@@ -1,0 +1,1 @@
+# Al-Based-Tool-For-Preliminary-Diagnosis-Of-Dermatological-Manifestations
